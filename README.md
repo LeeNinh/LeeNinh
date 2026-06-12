@@ -2,7 +2,6 @@
 **Java Developer**
 
 0384549001  
-leducninh29031996@gmail.com  
 Xuân Đỉnh, Bắc Từ Liêm Hà Nội
 
 ---
